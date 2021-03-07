@@ -6,3 +6,5 @@ Hello hello, I'm Andrei Stoica, a studying at NYU pursuing an iindividualized ma
 My largest claim to fame is: https://www.instagram.com/basil.the.corgi_/
 
 Hi Andrei, your corgi looks very polite.
+Hi This is William, I enjoy reading about you.
+
